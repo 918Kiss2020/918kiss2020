@@ -1,0 +1,2 @@
+# 918kiss2020
+Welcome to 918Kiss 2020 Online Casino! With online casino legalization in Hong Kong, you can easily use our online casino recommendation rankings! Not to mention that in addition to using online gambling platforms for credit cards, they can also be used for Bitcoin transactions! Let your personal safety improve! Don't worry about personal safety exposure! And easily enjoy online casinos!
